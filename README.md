@@ -4,7 +4,7 @@ I'm Uyên, a researcher interested in sustainable agriculture and aquaculture de
 
 🌱 Before 2019, I worked across Vietnam, Thailand, and Myanmar, assessing value chains in coffee, tea, fruits, and vegetables — with different focuses on water-saving irrigation, organic farming, and agrochemical traceability.
 
-📍 Since 2019, I’ve been based in Germany, where I completed a M.Sc. in Agricultural Science & Resource Management in the Tropics and Subtropics. Currently, I’m pursuing a PhD in the Economics of Sustainable Land Use & Bioeconomy at the University of Bonn.
+📍 Since 2019, I’ve been based in Germany, where I completed a M.Sc. in Agricultural Science & Resource Management in the Tropics and Subtropics. Currently, I’m pursuing a PhD in Agricultural Economics at the University of Bonn.
 
 🔍 **Research Focus**
 
