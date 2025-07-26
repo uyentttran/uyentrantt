@@ -22,7 +22,7 @@ I'm Uyên, a researcher interested in sustainable agriculture and aquaculture de
 
     Kamau, H. N., Tran, U., & Biber-Freudenberger, L. (2021). A long way to go: Gender and diversity in land use science. Journal of Land Use Science, 17(1), 262–280.
 
-⭐ **Current Project**
+⭐ **Current Research**
 
 Evaluating the impact of sustainability certifications on mangrove conservation in Vietnam’s Mekong Delta 🌊🌿
 
